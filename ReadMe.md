@@ -1,5 +1,5 @@
 # 💫 About Me:
-Especialista em Soluções de Gestão da Manutenção Empresarial pela Universidade de Taubaté, com mais de 25 anos de experiência em empresas renomadas. Concentrei minha carreira em impulsionar o Sucesso do Cliente e liderar projetos complexos, com ênfase no desenvolvimento de negócios. MSc em Eng. de Produção pela UNITAU | Eng. Elétrica |  Gestão de Logística |  Téc. Eletrônica , posso dizer que sou especialista em metodologias, incluindo TPM, RCM, LEAN SIX SIGMA.
+Mestre em Estrategia na Gestão da Manutenção pela Universidade de Taubaté, 25 anos de experiência em empresas multinacionais, especialista nas métodologias: TPM, RCM, LEAN SIX SIGMA
 
 
 ## 🌐 Socials:
